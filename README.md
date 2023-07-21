@@ -1,1 +1,0 @@
-# bulk.sms.github.io
